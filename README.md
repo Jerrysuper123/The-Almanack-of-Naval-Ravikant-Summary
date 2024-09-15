@@ -3,6 +3,13 @@
 This summarizes the learnings from the book.
 
 ## Happiness from peace, which comes from a place of lacks nothing
+"Today, I believe happiness is really a default state. Happiness is there when you remove the sense of something missing in your life.
+We are highly judgmental survival-and-replication machines.
+
+We constantly walk around thinking, “I need this,” or “I need that,” trapped in the web of desires. Happiness is the state when nothing is missing. When nothing is missing, your mind shuts down and stops running into the past or future to regret something or to plan something.
+
+In that absence, for a moment, you have internal silence. When you have internal silence, then you are content, and you are happy. Feel free to disagree. Again, it’s different for everybody."
+
 Money only plays a very small of part of bringing happiness.
 Happiness comes from 2 things:
 1. lacks nothing
