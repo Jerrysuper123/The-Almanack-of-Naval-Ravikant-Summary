@@ -40,6 +40,11 @@ I can say I am too rational nowadays with all the theories/modals, but less like
 
 These deepest, fearless thoughts, I think really define who we are as individuals. Because we come this this world to overcome these fear and anxiety, but now clouded by schooling/parenting and setbacks along the way.
 
+Being fearless does not mean you could do anything in the world; being fearless means liberating yourself - it is a relationship with your fear and yourself
+- I do not dare to admit who really I am - admitting those fearless thoughts. This is the first layer of clouding. 
+- Then I am not being who really I am, so my inner compass searches for external knowledge I do not really need. This is the second layer of clouding. 
+- From the confused knowledge, I search for external materials to satisfied my confused needs & wants. This is the third layer of clouding/confusiong.
+
 ## Happiness from peace, which comes from a place of lacks nothing
 "Today, I believe happiness is really a default state. Happiness is there when you remove the sense of something missing in your life.
 We are highly judgmental survival-and-replication machines.
