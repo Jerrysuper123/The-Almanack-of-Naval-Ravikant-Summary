@@ -20,6 +20,7 @@ Some of basic/real knowlege:
 6. Coding and system design
 7. Basic science and engineering
 8. Basic communication
+9. Accounting
 
 Some of advanced knowledge (not proven and does not yield consistent results):
 1. adv English vocabulary that no one understand
@@ -28,6 +29,7 @@ Some of advanced knowledge (not proven and does not yield consistent results):
 4. Relativity theory
 5. advanced philosophy
 6. The theories behind AI (at least for me now)
+7. Adv science and math
 
 
 
