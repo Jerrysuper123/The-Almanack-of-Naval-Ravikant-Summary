@@ -47,6 +47,9 @@ Being fearless does not mean you could do anything in the world; being fearless 
 - Then I am not being who really I am, so my inner compass searches for external knowledge I do not really need. This is the second layer of clouding. 
 - From the confused knowledge, I search for external materials to satisfy my confused needs & wants. This is the third layer of clouding/confusiong.
 
+The best question to ask yourself is:
+`If without fears or failures, what do you want to do now?`
+
 ## Happiness from peace, which comes from a place of lacks nothing
 "Today, I believe happiness is really a default state. Happiness is there when you remove the sense of something missing in your life.
 We are highly judgmental survival-and-replication machines.
