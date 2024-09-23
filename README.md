@@ -30,6 +30,8 @@ Some of advanced knowledge (not proven and does not yield consistent results):
 5. advanced philosophy
 6. The theories behind AI (at least for me now)
 7. Adv science and math
+8. Daily news (nowdays news is like junk food
+9. Social media
 
 
 
