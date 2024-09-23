@@ -36,6 +36,8 @@ Some of advanced knowledge (not proven and does not yield consistent results):
 ### confused thinkers forget who they are in the world; fearless thoughts define who you are as a real person
 Formal education helps to build our capacity to learn but at the same time take away our creativity and individuality.
 
+Disfunctional family could also clip your ability to dream; you dare not venture out being afraid of getting hurt again. Or the reverse, some become too aggressive, without fears at all.
+
 I can say I am too rational nowadays with all the theories/modals, but less likely to be daring and hear within the fearless thoughts.
 
 These deepest, fearless thoughts, I think really define who we are as individuals. Because we come this this world to overcome these fear and anxiety, but now clouded by schooling/parenting and setbacks along the way.
