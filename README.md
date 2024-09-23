@@ -33,7 +33,12 @@ Some of advanced knowledge (not proven and does not yield consistent results):
 8. Daily news (nowdays news is like junk food
 9. Social media
 
+### confused thinkers forget who they are in the world; fearless thoughts define who you are as a real person
+Formal education helps to build our capacity to learn but at the same time take away our creativity and individuality.
 
+I can say I am too rational nowadays with all the theories/modals, but less likely to be daring and hear within the fearless thoughts.
+
+These deepest, fearless thoughts, I think really define who we are as individuals. Because we come this this world to overcome these fear and anxiety, but now clouded by schooling/parenting and setbacks along the way.
 
 ## Happiness from peace, which comes from a place of lacks nothing
 "Today, I believe happiness is really a default state. Happiness is there when you remove the sense of something missing in your life.
