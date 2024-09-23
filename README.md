@@ -2,6 +2,10 @@
 
 This summarizes the learnings from the book.
 
+## “Clear thinker” is a better compliment than “smart.” 
+`The really smart thinkers are clear thinkers. They understand the basics at a very, very fundamental level. I would rather understand the basics really well than memorize all kinds of complicated concepts I can’t stitch together and can’t rederive from the basics. If you can’t rederive concepts from the basics as you need them, you’re lost. You’re just memorizing. [4] The advanced concepts in a field are less proven. We use them to signal insider knowledge, but we’d be better off nailing the basics. [11] `
+
+
 ## Happiness from peace, which comes from a place of lacks nothing
 "Today, I believe happiness is really a default state. Happiness is there when you remove the sense of something missing in your life.
 We are highly judgmental survival-and-replication machines.
