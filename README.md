@@ -87,7 +87,7 @@ What is the catch here?
 
 No expectations! No productivity hacks! No measurements! No goal settings!
 
-The anime hero each day just starts doing what he likes to do, and he really enjoys it. And eventually, his ultimate goal becomes very clear to him. Rather living someone else's life externally, the hero is projecting the authencity of his inner soul into the world, making a huge impact.
+The anime hero each day just starts doing what he likes to do, and he really enjoys it. And eventually, his ultimate goal becomes very clear to him. Rather living someone else's life externally, the hero is projecting the authencity of his inner soul into the world - passion of his soul is shaking the world.
 
 We believe each day you could do this do. If you lack of motivation today, maybe you are currently living someone else' life and you have forgot what you really like. But you could ask yourself right now, what do i really want to do today? But be courageous to let go of good to become great in life.
 
