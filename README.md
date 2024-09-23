@@ -53,7 +53,7 @@ The best question to ask yourself is:
 ## Free from expectations
 `I don’t measure my effectiveness at all. I don’t believe in self-measurement. I feel like this is a form of self-discipline, self-punishment, and self-conflict. If you hurt other people because they have expectations of you, that’s their problem. If they have an agreement with you, it’s your problem. But, if they have an expectation of you, that’s completely their problem. It has nothing to do with you. They’re going to have lots of expectations out of life. The sooner you can dash their expectations, the better. [1]`
 
-Today it proves again that we human beings have no self-control at all, just like what the bible said:
+Wrong expectations of self-control - today it proves again that we human beings have no self-control at all, just like what the bible said:
 - could someone with depression come out of it on their own
 - could someone with addiction e.g. sexual, drug or alcohol come out of this on their own
 Hardly, we have no self-control at all. Actually, this is a bad vocabulary to use. It should be we have no self-control, but we could have self-influence.
