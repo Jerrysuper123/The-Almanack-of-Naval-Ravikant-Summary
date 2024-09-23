@@ -50,6 +50,11 @@ Being fearless does not mean you could do anything in the world; being fearless 
 The best question to ask yourself is:
 `If without fears or failures, what do you want to do now?`
 
+## Free from expectations
+`I don’t measure my effectiveness at all. I don’t believe in self-measurement. I feel like this is a form of self-discipline, self-punishment, and self-conflict. If you hurt other people because they have expectations of you, that’s their problem. If they have an agreement with you, it’s your problem. But, if they have an expectation of you, that’s completely their problem. It has nothing to do with you. They’re going to have lots of expectations out of life. The sooner you can dash their expectations, the better. [1]`
+
+
+
 ## Happiness from peace, which comes from a place of lacks nothing
 "Today, I believe happiness is really a default state. Happiness is there when you remove the sense of something missing in your life.
 We are highly judgmental survival-and-replication machines.
