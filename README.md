@@ -4,6 +4,7 @@ This summarizes the learnings from the book.
 
 ## Making money is not a thing you do, it is a skill you learn
 `If i lose all my money and dropped me on a random street...within five or ten years, I'd become wealthy again because it is just a skillset that I have developed that anyone can develop.`
+
 Many actually attribute monetary success to luck. Some could make overnight success but they could never retain the wealth/ or making good use of money.
 
 It is definitely a skill you development over time - making money and making good use of money. Do not agree that anyone could develop money-making skillset, but you definitely need can-do mentality and keep nurturing the skills of creating value for the society. Schools and parents only taught you how to find a good job; they never teach you how to create real value in society, because it is tough and probably they do not know how to do it either.
