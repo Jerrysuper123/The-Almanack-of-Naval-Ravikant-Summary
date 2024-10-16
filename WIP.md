@@ -4,7 +4,7 @@
 
 `the failures that other people made; it is likely you will make also. Do not be fooling yourself that you would not.`
 
-Success does not really reflect a person. Look at their failure experiences - opposite of the society's view. When you read more of their failures, you will instinctively reflect that shit, i might be commiting this mistake also. I have no good self control, no discipline...
+Success does not really reflect a person. Look at their failure experiences - opposite of the society's view. When you read more of their failures, you will instinctively reflect that shit, i might be commiting this mistake also - no good self control, no discipline, no persistence
 
 `who you are, what do you want to do, and what needed to be given up`
 
