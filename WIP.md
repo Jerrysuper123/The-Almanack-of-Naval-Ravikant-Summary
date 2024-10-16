@@ -31,3 +31,5 @@ So always want other people to be better than yourself. This is a form of charis
 `Appreciate yourself and your journey`
 
 `You have to create opportunties yourself out of countless failures. Why should people give you? Why should your parents be rich? So go and create yourself.`
+
+`you can do and learn anything in the world. Just consistently putting in efforts.`
